@@ -32,4 +32,4 @@ Der Anfang aller Anfänge:
 -> Katowice wird Hauptstadt der Welt (weil sicke Trambeleuchtung obvsl) 
 -> Unsterblichkeit 
 -> Ein grelles Licht 
--> Herr Huber schickt uns ein Lächeln, Winken und schickt ein freundliches TSCHÜSS zu
+-> Herr Huber schickt uns ein Lächeln, Winken und ein freundliches TSCHÜSS zu
