@@ -1,0 +1,35 @@
+# huber_ooof
+Ausgabe bei Frage: Was bringt die Zukunft?
+Der Anfang aller Anfänge: 
+->AUFGEHTSKAFFEE 
+-> ersten Prüfungen überstehen 
+-> Mathias versklaven 
+-> die erste Million 
+-> Haus in Polen kaufen für Startup 
+->Kindersklavenarmee(aka Internet Explorer User aka BWL Studenten) von Andrejs unter Leitung von Mathias 
+-> Bachelorarbeit 
+-> Masterarbeit 
+-> internationales Superunternehmen StartUpSocks 
+-> Wer ist Jeff Bezos? 
+-> Alle BWLer in den Kosmos schicken weil Überbevölkerung
+-> Auf dem Mars landen 
+-> vom Mars aus Elon bei Marslandung helfen 
+-> Doktorarbeit 
+-> erste Sonnenlandung 
+-> Nobelpreis 
+-> Weltherrschaft 
+-> Basta Impasta Pflicht für alle 
+-> Staatsfernsehen PewNews 
+-> Einführung der Währung Andrej(Kindersklaven) 
+-> Elite besteht immer noch aus Magda, Felix, Dani, Elmar, Ronja 
+-> Kaiserkrönung von Elmar durch Ricardo Milos berichtet von Poppy Gloria 
+-> Befreiung der Kindersklaven durch Kaiser Elmar 
+-> Neue Währung HuberCoins (Sonderausgabe: Lichterkettenedition)  
+-> Wasserdichte Flaschen erfinden 
+-> Stonks only go up 
+-> JOOO DIE PIZZA IST IM OFEN 
+-> Weltfrieden, Freude, Eierkuchen 
+-> Katowice wird Hauptstadt der Welt (weil sicke Trambeleuchtung obvsl) 
+-> Unsterblichkeit 
+-> Ein grelles Licht 
+-> Herr Huber schickt uns ein Lächeln, Winken und schickt ein freundliches TSCHÜSS zu
